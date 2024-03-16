@@ -1,2 +1,2 @@
 # Atualizações da crDroid
-<img src="https://thecustomrom.com/ciqimoq/uploads/2021/07/CrDroid-Rom-768x390.jpg" width="950px" height="400px" align="center">
+<img src="https://thecustomrom.com/ciqimoq/uploads/2021/07/CrDroid-Rom-768x390.jpg" width="400px" height="300px" align="center">
