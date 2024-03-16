@@ -1,2 +1,2 @@
 # Atualizações da crDroid
-<img src="[[https://media1.tenor.com/m/SyyBm8FdDSUAAAAC/android-update.gif](https://crdroid.net/img/logo.png)](https://www.google.com/url?sa=i&url=https%3A%2F%2Fthecustomrom.com%2Fcrdroid%2F&psig=AOvVaw3Gbm-QAxxk6H5oiGiemTKs&ust=1710696756261000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCLCjsauo-YQDFQAAAAAdAAAAABAS)https://www.google.com/url?sa=i&url=https%3A%2F%2Fthecustomrom.com%2Fcrdroid%2F&psig=AOvVaw3Gbm-QAxxk6H5oiGiemTKs&ust=1710696756261000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCLCjsauo-YQDFQAAAAAdAAAAABAS" width="300px" height="300px" align="center">
+<img src="https://thecustomrom.com/ciqimoq/uploads/2021/07/CrDroid-Rom-768x390.jpg" width="300px" height="300px" align="center">
